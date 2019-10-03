@@ -7,5 +7,5 @@ Yixi is originally from China. She graduated from **Mount Holyoke College** with
 1. Granada, Spain
 2. Kyoto, Japan
 3. Jeruselum, Isareal  
-[linkedIn Page](https://www.linkedin.com/in/yixi-chen-7b42bb63/)
+[Yixi's LinkedIn Page](https://www.linkedin.com/in/yixi-chen-7b42bb63/)
 ![Granada, Spain summer 2018](https://www.clubvillamar.com/blog/wp-content/uploads/2018/05/granada-alhambra-1024x576.jpg)
